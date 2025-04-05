@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me via my email hieplethithanh@gmail
 - 😄 Pronouns: ....
-- ⚡ Fun fact: love to transform my knowdledge to help the world become better!!!! 
+- ⚡ Fun fact: love to transform my knowdledge to help the world become better!!!!
+- My journey is started from 5 April 2025. 
 
 <!---
 T-H-Le/T-H-Le is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
